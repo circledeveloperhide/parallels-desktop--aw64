@@ -1,4 +1,4 @@
-
+Get the ultimate Parallels Desktop for macOS plugin with Parallels Desktop for macOS new Plugin: quick-launch & custom-actions. Featuring quick-launch and custom-actions, it's the
 
 
 
